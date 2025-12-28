@@ -19,6 +19,8 @@ I'm **Rdr. Seraphim Pardee**, an ☦️ Orthodox Christian reader and 👨🏻�
 ### Latest blog entries
 
 <!-- BLOG-POST-LIST:START -->
+- [Apophasis](https://srp.life/apophasis/) on Sunday, December 28, 2025   
+ *&quot;For the moment all discipline seems painful rather than pleasant; later it yields the peaceful fruit of righteousness to those who have been trained by it.&quot; - Hebrews 12:11 &lpar;RSV&rpar;*
 - [A Grief Unobserved](https://srp.life/a-grief-unobserved/) on Friday, August 01, 2025   
  *&quot;And God shall wipe away all tears from their eyes; and there shall be no more death, neither sorrow, nor crying, neither shall there be any more pain: for the former things are passed away.&quot; - Revelation 21:4 &lpar;KJV&rpar;*
 - [To My Daughter, Mary - Entry 1](https://srp.life/to-my-daughter-mary-entry-1/) on Thursday, March 20, 2025   
@@ -26,9 +28,7 @@ I'm **Rdr. Seraphim Pardee**, an ☦️ Orthodox Christian reader and 👨🏻�
 - [Something of a revitalization.](https://srp.life/something-of-a-revitalization/) on Monday, March 10, 2025   
  *Friendship with Substack ended, now Ghost is my best friend.*
 - [Trust For The Distrustful](https://srp.life/trust-for-the-distrustful/) on Friday, December 13, 2024   
- *&quot;For we have not a high priest who is unable to sympathize with our weaknesses, but one who in every respect has been tempted as we are, yet without sin.&quot; - Hebrews 4:15 &lpar;RSV&rpar;*
-- [Reflection: Age &amp; Legacy &lpar;pt. 3&rpar;](https://srp.life/reflection-age-and-legacy-pt-3/) on Thursday, November 28, 2024   
- *&quot;Indeed all was vanity and grasping for the wind. There was no profit under the sun.&quot; - Ecclesiastes 2:11b*<!-- BLOG-POST-LIST:END -->
+ *&quot;For we have not a high priest who is unable to sympathize with our weaknesses, but one who in every respect has been tempted as we are, yet without sin.&quot; - Hebrews 4:15 &lpar;RSV&rpar;*<!-- BLOG-POST-LIST:END -->
 
  ### Recent scrobbles
 
