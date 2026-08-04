@@ -20,6 +20,8 @@ I'm **Rdr. Seraphim Pardee**, an ☦️ Orthodox Christian reader and 👨🏻�
 ### Latest blog entries
 
 <!-- BLOG-POST-LIST:START -->
+- [On the Keeping of a Journal](https://srp.life/on-the-keeping-of-a-journal/) on Tuesday, August 04, 2026   
+ *That’s right, I’m productivity blogging now! Try and stop me!*
 - [Apophasis](https://srp.life/apophasis/) on Sunday, December 28, 2025   
  *“For the moment all discipline seems painful rather than pleasant; later it yields the peaceful fruit of righteousness to those who have been trained by it.” - Hebrews 12:11 &lpar;RSV&rpar;*
 - [A Grief Unobserved](https://srp.life/a-grief-unobserved/) on Friday, August 01, 2025   
@@ -27,9 +29,7 @@ I'm **Rdr. Seraphim Pardee**, an ☦️ Orthodox Christian reader and 👨🏻�
 - [To My Daughter, Mary - Entry 1](https://srp.life/to-my-daughter-mary-entry-1/) on Thursday, March 20, 2025   
  *On the occasion of your first birthday.*
 - [Something of a revitalization.](https://srp.life/something-of-a-revitalization/) on Monday, March 10, 2025   
- *Friendship with Substack ended, now Ghost is my best friend.*
-- [Trust For The Distrustful](https://srp.life/trust-for-the-distrustful/) on Friday, December 13, 2024   
- *“For we have not a high priest who is unable to sympathize with our weaknesses, but one who in every respect has been tempted as we are, yet without sin.” - Hebrews 4:15 &lpar;RSV&rpar;*<!-- BLOG-POST-LIST:END -->
+ *Friendship with Substack ended, now Ghost is my best friend.*<!-- BLOG-POST-LIST:END -->
 
  ### Recent scrobbles
 
